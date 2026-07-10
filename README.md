@@ -10,4 +10,5 @@ the main rival is robinhood
 very little fee on Base 
 Base speed is awsome
 base will come in 4 monthes
+Base will be th Base
 
