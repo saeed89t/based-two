@@ -13,3 +13,4 @@ base will come in 4 monthes
 Base will be th Base
 Base  is getting active on memes
 i will get to eat good on base 
+Base should give me more than  2 k $
