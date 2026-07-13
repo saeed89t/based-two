@@ -18,4 +18,4 @@ creators will be happy
 try to get dis roles
 social will be important to base 
 try using diffrenet smart contracts
-
+farm smart
