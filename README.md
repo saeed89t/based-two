@@ -20,5 +20,6 @@ social will be important to base
 try using diffrenet smart contracts
 farm smart
 contracts are important
+i dont think rh chain can compete with base
 
 
