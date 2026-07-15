@@ -19,3 +19,6 @@ try to get dis roles
 social will be important to base 
 try using diffrenet smart contracts
 farm smart
+contracts are important
+
+
