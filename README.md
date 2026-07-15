@@ -21,5 +21,5 @@ try using diffrenet smart contracts
 farm smart
 contracts are important
 i dont think rh chain can compete with base
-
+Base is the future
 
