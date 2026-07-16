@@ -24,3 +24,4 @@ i dont think rh chain can compete with base
 Base is the future
 Cobbie is on Base now 
 trust in Base 
+Dont miss Base
