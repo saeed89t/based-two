@@ -27,3 +27,4 @@ trust in Base
 Dont miss Base
 Try Base swap
 bridge from mainnet to base
+make some consitent volume on base
