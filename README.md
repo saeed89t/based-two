@@ -26,3 +26,4 @@ Cobbie is on Base now
 trust in Base 
 Dont miss Base
 Try Base swap
+bridge from mainnet to base
