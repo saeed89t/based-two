@@ -29,3 +29,4 @@ Try Base swap
 bridge from mainnet to base
 make some consitent volume on base
 every one is waiting for base
+base is the real tech 
